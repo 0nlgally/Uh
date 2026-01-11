@@ -45,5 +45,6 @@ _____________________________________
 
 __________________
 ![](https://komarev.com/ghpvc/?username=Y0rgall&color=ccca89)
+• Please int me! I'm cool! I have a good humor, pls🥺. 
 
 • THANK YOU FOR READING AND UNDERSTANDING!!!. 💌
