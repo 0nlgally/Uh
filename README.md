@@ -9,40 +9,40 @@ _____________________________________
 # •.:°❀×═════════×❀°:.
 
 1. I am sentimental or **"emotional"**. 
-2. Loyal(Trust me). 
-3. Omnivert or both **Introvert** and **Extrovert**. 
+2. Loyal. (Trust me, I won't ditch you.) 
+3. Ambivert or both **Introvert** and **Extrovert**. 
 4. Bi/Les/Aorace | (Depending what I feel.) 
-5. Loves to draw! (Stuck at artblock anyways). 
+5. Loves to draw!
 6. Loves Listening to music. 
 7. • My real name is **"Uzziah"** but please call me **"Uzi"** for short —
      • Considered other nicknames like Gal and Yang. 
 8. Clingy. 
 9. Affectionate. 
-• I'm a loving person. 💌
+    • I'm a loving person. 
 10. I suddenly shift to my emotional gang sometimes, **so don't expect me to be dry.** ☏
-11. Favorite ships from UT is GENO and REAPER, also Ink And Error. —  • From GI, I don't think so, maybe Nefer and Lauma😥.
+11. Favorite ships from UT is GENO and REAPER, also Ink And Error. —  • From GI, I don't think so, maybe Nefer and Lauma.
 12. I easily get anxious of you, so please be honest with me. 
-# ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘⸊ˎ
+_____
+# INT. ✔
 
-# INT. ✔☘
-1. UT or Undertale fans! ☘
-2. GI or Genshin Impact! ☘
-3. 12y+ above. ☘
-4. Yao or Yuri. ☘
-5. S3x jokes or dirty jokes(For fun please.) ☘
-6. Sure, I allowed **furries** but PLEASE, in a positive way. ☘
-# ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘⸊ˎ
-
-
+1. UT or Undertale fans!
+2. GI or Genshin Impact fans!
+     • And other fandoms
+3. 12y+ above. 
+4. Yao or Yuri. 
+5. S3x jokes or dirty jokes(For fun please.) 
+6. Sure, I allowed **furries** but PLEASE, in a positive way. 
+_____
 # DNI. ✘☏
-1. MDNI. ✘
-2. Racist. ✘
-3. Homophobics. ✘
-4. VERY rude srs.✘
-5. Proshippers. ✘
-6. P3do. ✘
-7. Over 20+. ✘
-8. Frans shippers. ✘
+
+1. MDNI. 
+2. Racist. 
+3. Homophobics. 
+4. VERY rude srs.
+5. Proshippers. 
+6. P3do. 
+7. Over 20+. 
+8. Frans shippers. 
 <p align="center">
 
   ∘₊✧──────✧₊∘
@@ -51,7 +51,7 @@ __________________
 ![](https://komarev.com/ghpvc/?username=Y0rgall&color=ccca89)
 • Please int me! I'm cool! I have a good humor, pls🥺. 
 
-• THANK YOU FOR READING AND UNDERSTANDING!!!. 💌
+• THANK YOU FOR READING!!!. 💌
 
 <img src="5bb216ec-907d-4d6b-8ff3-57d3c9d60afb.gif" alt="Alt text" width="500" />
 
